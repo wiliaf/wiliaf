@@ -1,4 +1,3 @@
 - 👋 eu sou o wilia
 - 👀 nao gosto de faze programa aaaaa
 - 🌱 uso vscode
-- 💞️ contato 00001116128913sp@al.educacao.sp.gov.br
